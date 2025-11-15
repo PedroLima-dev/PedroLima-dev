@@ -1,3 +1,3 @@
-- Sobre mim: Curto tecnologias, games e animes.
+- Sobre mim: Curto tecnologias e games.
 - Entre em contato comigo pelo Gmail: (pedro.hsl16@gmail.com)
 - Linkedin: (https://www.linkedin.com/in/pedrolima-dev/)
